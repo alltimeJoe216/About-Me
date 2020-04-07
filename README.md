@@ -1,6 +1,6 @@
 About Me
 
 
-Joe Veverka
+Joe VeVerka
 
-I like turtles. 
+I still like turtles. 
